@@ -1,0 +1,2 @@
+# premium-equat-001-equatorial-mount-polar-alignme
+Tired of repeating the same polar alignment mistakes session after session, wasting precious clear nights? This Notion template turns your alignment data into a personalized improvement system.  The Equatorial Mount Polar Alignment Record solves the chronic frustration of inconsistently aligned sessions by giving you a structured, searchable databa
